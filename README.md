@@ -1,6 +1,6 @@
 # NYU-Tandon-Bridge-Spring-2025
 Timeline:
-March 7th, 2025 - Just got admitted, the official kick-off date is in late April
+March 7th, 2025 - Just got admitted, the official kick-off date is in April 7th
 
 Will keep updating
 
